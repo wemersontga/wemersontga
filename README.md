@@ -1,4 +1,4 @@
-### OLÁ SOU WEMERSON ARAUJO, DEV JAVA ✌️✌️✌️✌️
+### OLÁ, SOU WEMERSON ARAUJO, DEV JAVA ✌️✌️✌️✌️
 
 ❤️😊✌️ JAVEIRO DESDE 2012...
 
