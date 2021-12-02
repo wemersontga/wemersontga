@@ -1,6 +1,6 @@
 ### OLÁ SOU WEMERSON ARAUJO, DEV JAVA ✌️✌️✌️✌️
 
-❤️😊✌️ JAVA
+❤️😊✌️ JAVEIRO DESDE 2012...
 
 ### MÍDIAS SOCIAIS:
 [![BLOG](https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white)]()
