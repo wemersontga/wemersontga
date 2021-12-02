@@ -1,9 +1,6 @@
 ### OLÁ SOU WEMERSON ARAUJO, DEV JAVA ✌️✌️✌️✌️
 
-❤️😊 JAVA
-🔥😊 CSS
-🔥😊 JAVASCRIPT
-🔥😊 HTML
+❤️😊✌️ JAVA
 
 ### MÍDIAS SOCIAIS:
 [![BLOG](https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white)]()
